@@ -1,3 +1,7 @@
+
+![image](https://github.com/D4nko/D4nko/assets/75887653/f69bc822-bfea-47db-a904-be771ae6c1fc)
+
+
 ### Hi there 👋
 
 <!--
