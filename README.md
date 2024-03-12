@@ -1,5 +1,5 @@
 
-![image](https://github.com/D4nko/D4nko/assets/75887653/f69bc822-bfea-47db-a904-be771ae6c1fc)
+![giphy](https://github.com/D4nko/D4nko/assets/75887653/0416bc85-d99b-4798-9578-e99420a9712e)
 
 
 ### Hi there 👋
